@@ -1,5 +1,5 @@
 # 💫 About Me:
-Twitch Affiliate / Video Editor
+Hey, I’m Bigmon. I’ve been editing for close to a decade, obsessed with fast, attention-grabbing cuts that make moments hit. I make clips, shorts, montages, and I’m trynna get into that documentary/trailer-style storytelling because building hype and payoff around lore is my thing. On stream, I’m loud and high-energy —think chaos, perseverance, and a tight, positive community. I’m active on Twitch and spin highlights into YouTube Shorts, Reels, and TikToks to keep the best moments moving. I work in Premiere Pro and DaVinci Resolve. I’m a workflow nerd too, streamer.bot automations keep everything smooth so the creative stays front and center. Souls-likes are the current rabbit hole, FPS has always been home, and very obsessed with Berserk lore and Clair Obscur Expedition 33 soundtracks. Favorite boss fight : Malenia — fluid, beautiful, and terrifying, perfect for a “fail, adapt, overcome” arc.
 
 
 ## 🌐 Socials:
